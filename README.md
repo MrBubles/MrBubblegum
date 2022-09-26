@@ -1,3 +1,3 @@
--Hello I'm MrBubblegum A Dumbass
-
--I Like Wasting My Time
+-Hello I'm MrBubblegum!
+-Im Really Stupid!
+-I Like Wasting My Time!
